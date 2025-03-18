@@ -1,1 +1,1 @@
-- 👋 Hi there, I’m Tina
+- Hi there, I’m Tina 
